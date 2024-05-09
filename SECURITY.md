@@ -1,3 +1,3 @@
 # Security
 
-mailto: 44uaanjm0@relay.firefox.com
+44uaanjm0 [at] pm.me
